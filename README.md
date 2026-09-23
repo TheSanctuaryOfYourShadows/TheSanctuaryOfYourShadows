@@ -4,15 +4,16 @@
 ⠀⠀⠀⠀⠀⠀⠀⏝꒷︶𑁬⁠♡໒︶꒷⏝
 ⠀⠀⠀
 ⠀⠀⠀
-> just going to list things here that you need to know.
+# 𝘫𝘶𝘴𝘵 𝘨𝘰𝘪𝘯𝘨 𝘵𝘰 𝘭𝘪𝘴𝘵 𝘵𝘩𝘪𝘯𝘨𝘴 𝘩𝘦𝘳𝘦 𝘵𝘩𝘢𝘵 𝘺𝘰𝘶 𝘯𝘦𝘦𝘥 𝘵𝘰 𝘬𝘯𝘰𝘸.
 ⠀⠀⠀
 ⠀⠀⠀
-- How to know that I'm upset/furious/worn out/not in the mood — well, if my name has "dniuid" or my discord status as a "."
+> 𝘏𝘰𝘸 𝘵𝘰 𝘬𝘯𝘰𝘸 𝘵𝘩𝘢𝘵 𝘐'𝘮 𝘶𝘱𝘴𝘦𝘵/𝘧𝘶𝘳𝘪𝘰𝘶𝘴/𝘸𝘰𝘳𝘯 𝘰𝘶𝘵/𝘯𝘰𝘵 𝘪𝘯 𝘵𝘩𝘦 𝘮𝘰𝘰𝘥 — 𝘸𝘦𝘭𝘭, 𝘪𝘧 𝘮𝘺 𝘯𝘢𝘮𝘦 𝘩𝘢𝘴 "𝘥𝘯𝘪𝘶𝘪𝘥" 𝘰𝘳 𝘮𝘺 𝘥𝘪𝘴𝘤𝘰𝘳𝘥 𝘴𝘵𝘢𝘵𝘶𝘴 𝘢𝘴 𝘢 "."
 ⠀⠀⠀
-- How to know that I'm probably mad at you, or upset, or just overthinking about you? — By being distant, or Awkward, or at least asocial / or saying "sorry" a lot, and giving vague answers.
+> 𝘏𝘰𝘸 𝘵𝘰 𝘬𝘯𝘰𝘸 𝘵𝘩𝘢𝘵 𝘐'𝘮 𝘱𝘳𝘰𝘣𝘢𝘣𝘭𝘺 𝘮𝘢𝘥 𝘢𝘵 𝘺𝘰𝘶, 𝘰𝘳 𝘶𝘱𝘴𝘦𝘵, 𝘰𝘳 𝘫𝘶𝘴𝘵 𝘰𝘷𝘦𝘳𝘵𝘩𝘪𝘯𝘬𝘪𝘯𝘨 𝘢𝘣𝘰𝘶𝘵 𝘺𝘰𝘶? 𝘉𝘺 𝘣𝘦𝘪𝘯𝘨 𝘥𝘪𝘴𝘵𝘢𝘯𝘵, 𝘰𝘳 𝘈𝘸𝘬𝘸𝘢𝘳𝘥, 𝘰𝘳 𝘢𝘵 𝘭𝘦𝘢𝘴𝘵 𝘢𝘴𝘰𝘤𝘪𝘢𝘭 / 𝘰𝘳 𝘴𝘢𝘺𝘪𝘯𝘨 "𝘴𝘰𝘳𝘳𝘺" 𝘢 𝘭𝘰𝘵, 𝘢𝘯𝘥 𝘨𝘪𝘷𝘪𝘯𝘨 𝘷𝘢𝘨𝘶𝘦 𝘢𝘯𝘴𝘸𝘦𝘳𝘴.
+⠀⠀
+> 𝘏𝘰𝘸 𝘵𝘰 𝘴𝘱𝘰𝘵 𝘵𝘩𝘢𝘵 𝘐'𝘮 𝘶𝘯𝘤𝘰𝘮𝘧𝘰𝘳𝘵𝘢𝘣𝘭𝘦? — 𝘸𝘦𝘭𝘭, 𝘺𝘰𝘶 𝘫𝘶𝘴𝘵 𝘰𝘣𝘴𝘦𝘳𝘷𝘦 𝘮𝘺 𝘢𝘤𝘵𝘪𝘰𝘯𝘴, 𝘰𝘳 𝘳𝘦𝘢𝘤𝘵𝘪𝘰𝘯𝘴 𝘵𝘰𝘸𝘢𝘳𝘥𝘴 𝘴𝘰𝘮𝘦𝘵𝘩𝘪𝘯𝘨 𝘵𝘩𝘢𝘵 𝘮𝘪𝘨𝘩𝘵'𝘷𝘦 𝘮𝘢𝘥𝘦 𝘮𝘦 𝘶𝘯𝘤𝘰𝘮𝘧𝘰𝘳𝘵𝘢𝘣𝘭𝘦—𝘭𝘪𝘬𝘦 𝘮𝘰𝘷𝘪𝘯𝘨 𝘢𝘸𝘢𝘺/𝘴𝘤𝘰𝘰𝘵𝘪𝘯𝘨 𝘢 𝘭𝘪𝘵𝘵𝘭𝘦 𝘧𝘢𝘳𝘵𝘩𝘦𝘳, 𝘰𝘳 𝘣𝘦𝘪𝘯𝘨 𝘲𝘶𝘪𝘦𝘵 𝘢𝘭𝘭 𝘰𝘧 𝘵𝘩𝘦 𝘴𝘶𝘥𝘥𝘦𝘯.
 ⠀⠀⠀
-- How to spot that I'm uncomfortable? — well, you just observe my actions, or reactions towards something that might've made me uncomfortable—like moving away/scooting a little farther, or being quiet all of the sudden.
+> 𝘏𝘰𝘸 𝘵𝘰 𝘬𝘯𝘰𝘸 𝘐'𝘮 𝘈𝘍𝘒 𝘪𝘧 𝘮𝘺 𝘯𝘢𝘮𝘦 𝘥𝘰𝘦𝘴𝘯'𝘵 𝘴𝘢𝘺 "𝘈𝘍𝘒"? 𝘞𝘦𝘭𝘭, 𝘺𝘰𝘶 𝘴𝘩𝘰𝘶𝘭𝘥 𝘤𝘩𝘦𝘤𝘬 𝘮𝘺 𝘴𝘵𝘢𝘵𝘶𝘴 (𝘰𝘯 𝘗𝘛) 𝘪𝘧 𝘪𝘵'𝘴 𝘢 🌙, 𝘪𝘵 𝘮𝘦𝘢𝘯𝘴 𝘐'𝘮 𝘈𝘍𝘒.
 ⠀⠀⠀
-- How to know I'm AFK if my name doesn't say "AFK"? Well, you should check my status (on PT) if it's a 🌙, it means I'm AFK.
-⠀⠀⠀
-- How to know that I want to interact? — well, you should read my name if it says "C+H" or "INT" , that means I'm free.
+> 𝘏𝘰𝘸 𝘵𝘰 𝘬𝘯𝘰𝘸 𝘵𝘩𝘢𝘵 𝘐 𝘸𝘢𝘯𝘵 𝘵𝘰 𝘪𝘯𝘵𝘦𝘳𝘢𝘤𝘵? — 𝘸𝘦𝘭𝘭, 𝘺𝘰𝘶 𝘴𝘩𝘰𝘶𝘭𝘥 𝘳𝘦𝘢𝘥 𝘮𝘺 𝘯𝘢𝘮𝘦 𝘪𝘧 𝘪𝘵 𝘴𝘢𝘺𝘴 "𝘊+𝘏" 𝘰𝘳 "𝘐𝘕𝘛" , 𝘵𝘩𝘢𝘵 𝘮𝘦𝘢𝘯𝘴 𝘐'𝘮 𝘧𝘳𝘦𝘦.
+
