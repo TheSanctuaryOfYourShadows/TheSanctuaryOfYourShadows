@@ -1,11 +1,11 @@
-<img width="736" height="981" alt="1000011146" src="https://github.com/user-attachments/assets/3750da1f-eeae-4cd4-85d1-4ea3d9754f47" />
+<img width="736" height="981" alt="1000005569" src="https://github.com/user-attachments/assets/f2d4dd54-655a-492a-b8de-ae13ec457f0c" />
 
 
 ⠀⠀⠀
 ⠀⠀⠀
 ⠀⠀⠀
 ⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀━━━ ⠀⠀⠀ . ۶
-⠀⠀𝓢𝗈𝗆𝖾𝗐𝗁𝗲𝗿𝗲 𝗂𝗇 𝘆𝗼𝗎𝗋 𝗲𝘆𝖾𝗌⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠀𝓢𝗈𝗆𝖾𝗐𝗁𝗲𝗿𝗲 𝗂𝗇 𝘆𝗼𝗎𝗋 𝗲𝘆𝖾𝗌⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 
-𝓐 𝖻𝖾𝗍𝘁𝗲𝗿 𝘄𝗼𝗋𝗅𝖽  ⠀——⠀⠀ 𝓐 𝗯𝗲𝘁𝗍𝖾𝗋 𝗅𝗂𝗳𝗲.
+⠀⠀⠀𝓐  𝖻𝖾𝗍𝘁𝗲𝗿 𝘄𝗼𝗋𝗅𝖽  ⠀——⠀⠀ 𝓐  𝗯𝗲𝘁𝗍𝖾𝗋 𝗅𝗂𝗳𝗲.
